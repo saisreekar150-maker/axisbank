@@ -1,1 +1,1 @@
-day to day practise is important
+git commands are important
