@@ -1,1 +1,1 @@
-am adding new line
+commitment dedication confidence 
